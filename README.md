@@ -1,4 +1,4 @@
-- 👀 Atualmente trabalhando na OSTEC Business Security
+
 - 🌱 Estudante de Ciência da Computação pela Unisul
 - 💞️ I’m looking for trouble
 - # 💫About Me :
